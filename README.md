@@ -11,3 +11,4 @@
 [Rachana Thapa ](https://github.com/rachanat535)
 [Jagadish](https://github.com/jugdizz)
 [ashok sharma](https://github.com/ashok3795)
+[nikita bajracharya](https://github.com/nikita5119/)
