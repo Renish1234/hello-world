@@ -9,3 +9,4 @@
 [Roshita Tamang](https://github.com/theroshh)
 [Matina Tuladhar](https://github.com/MatinaTuladhar)
 [Rachana Thapa ](https://github.com/rachanat535)
+[Jagadish](https://github.com/jugdizz)
