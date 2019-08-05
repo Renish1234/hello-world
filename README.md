@@ -8,3 +8,4 @@
 [Suman Khadka](https://github.com/5u3an)
 [Roshita Tamang](https://github.com/theroshh)
 [Matina Tuladhar](https://github.com/MatinaTuladhar)
+[Rachana Thapa ](https://github.com/rachanat535)
